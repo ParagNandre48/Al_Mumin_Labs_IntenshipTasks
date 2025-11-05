@@ -1,1 +1,1 @@
-# Al_Mumin_Labs_IntenshipTasks
+# Al_Mumin_Labs_InternshipTasks
